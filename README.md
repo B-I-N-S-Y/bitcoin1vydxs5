@@ -1,1 +1,0 @@
-# bitcoin1vydxs5
